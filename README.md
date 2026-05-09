@@ -3,7 +3,7 @@ Cv THAPELO RAMPHENYANA MANYAMA
 CV & Supporting Documents  
 
 Contact Details  
-Email: Mpheny1@gmail.com  
+Email: Mphenyit@gmail.com  
 Phone: 0673163192  
 Address: Moletsane Soweto House no 691 ralefutso street, 1818 Johannesburg  
 ID Number: 9808205684084  
